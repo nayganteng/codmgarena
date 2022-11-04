@@ -1,2 +1,2 @@
-☠️ Aimbot Safe For Codm Update ☠️
+Aimbot Safe For Codm Update
 - For update ValuesValues
